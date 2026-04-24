@@ -1,4 +1,4 @@
-
+top Script for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring silent aim and auto-collect. Safe and powerful for all
 
 
 
